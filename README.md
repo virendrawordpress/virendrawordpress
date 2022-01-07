@@ -1,4 +1,4 @@
-Dear Client,
+Hi,
 
 I'm master in WordPress CMS.
 
